@@ -1,1 +1,0 @@
-# sub-1-konsep-laju-reaksi
